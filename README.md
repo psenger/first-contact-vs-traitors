@@ -15,7 +15,7 @@ engaged in subverting humanity!
 ## Betrayal for Survival 
 
 Under dire circumstances, trapped animals instinctively act irrationally to survive. 
-We witness this when foxes, trapped in a snare, will they bite their own leg off to
+We witness this when foxes, trapped in a snare, will bite their own leg off to
 escape. 
 
 There is a primal response in us as well, from the Freudian concept of **Id**, 
